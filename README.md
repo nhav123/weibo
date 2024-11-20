@@ -1,4 +1,5 @@
-微勃社区 https://d7e619fzdbq3d.cloudfront.net
+下载微勃APP (免费资源 每日更新) ：
+https://d3291d58jjjqvq.cloudfront.net/page.html
 
 超千万资源免费无限看，你想要的我都有！
 
